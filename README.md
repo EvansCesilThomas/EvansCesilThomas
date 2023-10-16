@@ -1,7 +1,7 @@
-🚀 Aspiring Rocket Engineer 🌌 
-Electronics & Communication Major 📡 
-Space Enthusiast 🌠 
-Passionate Coder 🖥️ 
+🚀 Aspiring Rocket Engineer 🌌 <br>
+Electronics & Communication Major 📡 <br>
+Space Enthusiast 🌠 <br>
+Passionate Coder 🖥️ <br>
 Exploring the Final Frontier 🚀
 
 <!---
