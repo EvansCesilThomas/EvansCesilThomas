@@ -1,4 +1,3 @@
-🚀 Aspiring Rocket Engineer 🌌 <br>
 Electronics & Communication Major 📡 <br>
 Space Enthusiast 🌠 <br>
 Passionate Coder 🖥️ <br>
